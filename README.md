@@ -1,9 +1,11 @@
 # socialMediaApp
 
 
-just install pods and send me email to the app url 
+just install pods and send me email 
 
-i will shared with you 
+
+
+i will share the api  with you  for free
 
 
 contact me via whatsapp 
